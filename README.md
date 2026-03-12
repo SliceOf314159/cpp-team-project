@@ -1,1 +1,1 @@
-Student B Konrad Mytnik
+Student B: Konrad Mytnik
